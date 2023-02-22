@@ -1,7 +1,7 @@
 ### Jessi the Software Engineer   
 
 
-- Hi I'm Jessi, I'm software Engineer who believes in building and using technology rooted by love to help each other, progress our lives for the good of     humanity.
+- Hi I'm Jessi, I'm Software Engineer who believes in building and using technology rooted by love to help each other, progress our lives for the good of     humanity.
 
 - To me staying humble is a workout within you that builds courage, sacred knowledge, strength and compassion while using your ambitions to fuel you to get   things done. 
 
