@@ -48,7 +48,7 @@
 
 - If I have questions, I will let you know with good vibes. 💯
 
-- As a natural artist, I'm in my mind working, building code, solving problems, hearing a beat, designing a graphic in my head etc. ect. So, please never     assume you know what I'm thinking with a negative mindset. Assuming can be a room filled with of misconceptions and perspectives. If you do know how to     read people, you will find that, I'm chill, I got nothin but love to give, you can ask me anything.
+- As a natural artist, I'm in my mind working, detailing, building code, solving problems, hearing a beat, designing a graphic in my head etc. ect. So, please never     assume you know what I'm thinking with a negative mindset. Assuming can be a room filled with of misconceptions and perspectives. If you do know how to     read people, you will find that, I'm chill, I got nothin but love to give, you can ask me anything.
 
 
 # Mental and verbal abuse is real in our society ( Let's be real ) 
