@@ -14,7 +14,7 @@
 
 - I’m currently working on projects using Javascript, Node, MERN, Python and Django.
 
-- shout out to my business partners ( show love and value your team ) 
+- Shout out to my business partners ( show love and value your team ) 
   
 - It's our duty as engineers / humans to work on our own self development. Life is too precious and rad to be lazy. Make it happen. No matter what project   I'm working on, I never give up. Some projects have a short deadline (get it done 💯) and other projects can take months to years. Whatever the case may   be, I don't stop, won't stop. 💯
 
