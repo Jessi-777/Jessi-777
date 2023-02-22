@@ -25,13 +25,13 @@
 
 - Energy is everything, it's important to protect your energy, keep calm, stay positive, know that you will solve your problem. 
 
-- Teams that have the ability to trust & feel confident about helping each other, is a successful Healthy and Balanced team. Yes, it's rare & I treasure it. 
+- Teams that have the ability to trust & feel confident about helping each other, is a successful Healthy and Balanced team. Yes, it's rare & I treasure     it. 
 
 - I've worked with teams and also taken projects programming & developing alone. This being said, I can work alone and be here for my team when they         need me, vise versa.
 
-- My background is unique, so my thought process can be different at times and that's ok. I embrace being `unique`  and I like writing things down whenever I     feel the need to. 
+- My background is unique, so my thought process can be different at times and that's ok. I embrace being `unique`  and I like writing things down whenever   I feel the need to. 
 
-- I trust and honor my team / collaborators. No matter how stuck an engineer is, never put them down. Teach, guide or mentor with repect for each other. 
+- I trust and honor my team / collaborators. No matter how stuck an engineer is, putting them down is never an option. I'll do my best teach, guide or       mentor with repect for each other. 
 
 - Trust, we Software Engineers know how `Serious` it is to work with `Sensative Data`. 💯  
 
