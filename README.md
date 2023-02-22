@@ -15,7 +15,7 @@
 
 - Communication is the root of a great professional relationship. I will communicate with you in a humble and respectable manner. (If we're buddies you already know) Talking it out is a necessary nutrient to find a balance with colleages, team leaders & stakeholders in order to find clarity and grow stronger together. If you want to chop it up, I'm all ears. If I have questions, I will let you know rooted with good intentions, focus, determination and a splash of good vibes for the love of it. We must be accountable for our own happiness and have respectful boundaries with each other. Everything isn't always perfect, yet the beauty is, taking what we've learned from our experiences and letting it make us better, creating self growth. Let's grow together and water ourselves as we grow. 🌱 
 
-# Let's keep focused on Purpose and Growth. 
+# Let's stay focused on Purpose and Growth. 
 
 * Let's get it !!
 
