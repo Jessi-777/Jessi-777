@@ -33,7 +33,7 @@
 
 - I trust and honor my team / collaborators. No matter how stuck an engineer is, never put them down. Teach, guide or mentor, Always lift up the             people.
 
-- Software Engineers know how serious they need to becareful with sensative data. 💯  
+- Software Engineers know how `Serious` they need to becareful with `sensative data`. 💯  
 
   
 # Communication
@@ -63,4 +63,5 @@
 
  
 # Let's keep focused on love and growth. 
+* Let's get it !!
 
