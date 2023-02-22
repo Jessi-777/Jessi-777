@@ -19,21 +19,21 @@
 - It's our duty as engineers / humans to work on our own self development. Life is too precious and rad to be lazy. Make it happen. No matter what project   I'm working on, I never give up. Some projects have a short deadline (get it done 💯) and other projects can take months to years. Whatever the case may   be, I don't stop, won't stop. 💯
 
 
-# Collaborations and programming sessions
+# Collaborations and Programming Sessions
 
 - I love working with people, teams and mentors that have a positive mindsets, whom stay calm and stay kind while going through code.
 
 - Energy is everything, it's important to protect your energy, keep calm, stay positive, know that you will solve your problem. 
 
-- Teams that have the ability to trust & feel confident about helping each other, is a successful Healthy and Balanced team. Yes, it's rare. Treasure it     always. 
+- Teams that have the ability to trust & feel confident about helping each other, is a successful Healthy and Balanced team. Yes, it's rare. Treasure it. 
 
 - I've worked with teams and also taken projects programming & developing alone. This being said, I can work alone and be here for my team when they         need me, vise versa.
 
-- I'm also a song writer, my thought process is different. I embrace `different` I like writing things down whenever I feel the need to. 
+- My background is unique, so my thought process can be different at times and that's ok. I embrace being `unique` I like writing things down whenever I     feel the need to. 
 
-- I trust and honor my team / collaborators. No matter how stuck an engineer is, never put them down. Teach, guide or mentor, Always lift up the             people.
+- I trust and honor my team / collaborators. No matter how stuck an engineer is, never put them down. Teach, guide or mentor, always lift up the             people. Being realist is important. But, being mean about it is never necessary.
 
-- Software Engineers know how `Serious` they need to becareful with `sensative data`. 💯  
+- We Software Engineers know how `Serious` we need to becareful with `sensative data`. 💯  
 
   
 # Communication
