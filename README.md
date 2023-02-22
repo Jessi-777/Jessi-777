@@ -52,16 +52,7 @@
 
 - As a natural artist, I'm in my mind working, detailing, building code, solving problems, hearing a beat, designing a graphic in my head etc. ect. So,       please never assume you know what I'm thinking with a negative mindset. Assuming can be a room filled with of misconceptions and perspectives. If you do   know how to read people, you will find that, I'm chill, I got nothin but love to give, you can ask me anything.
 
-
-# Mental and verbal abuse is real in our society ( Let's be real ) 
-
-- Never let anyone make you feel any way for how you process what you learn. Everyone has a different learning process, I truly respect that. 
- 
-- I take verbal abuse very seriuosly. I will not tolerate verbal and mental abuse from anyone who loses their patience, because they had a bad day, or       chant on a daily how horrible their life is. 
-
 - We must be accountable for our own happiness and have respectful boundaries with each other. Everything isn't always perfect, yet the beauty is, what       you're learning from your experiences, which creates self growth. Let's grow together and water ourselves as we grow. 🌱
-
-- One experience is all it takes to grow through a senerio like that, to learn how important it is to be in a positive environment `Know Your Worth`.
 
  
 # Let's keep focused on love and growth. 
