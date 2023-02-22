@@ -42,7 +42,7 @@
 
 - I will communicate with you in a humble and respectable manner. ( If we're buddies you already know )
 
-- Talking it out is a necessary nutrient to find a balance with colleages, team leaders, stakeholders and friends in order to find clarity and grow           stronger together.
+- Talking it out is a necessary nutrient to find a balance with colleages, team leaders & stakeholders in order to find clarity and grow stronger together.
 
 - If you want to chop it up, I'm all ears. 
 
