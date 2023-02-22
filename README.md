@@ -4,7 +4,7 @@
 
 # Projects
 
-- I’m currently working on projects using Javascript, Node, MERN, Python and Django. It's our duty as engineers / humans to work on our own self development. Life is too precious and rad to be lazy. Make it happen. No matter what project I'm working on, I never give up. Some projects have a short deadline (get it done 💯) and other projects can take months to years. Whatever the case may be, I don't stop, won't stop.
+- I’ve have experience with building Full-Stack projects using Javascript, Node, MERN, HTML, CSS Python and Django. My experience with Software architecting process, designing framework, securing the architecture software, developing functionality, performance, scalability, technology constraints, designing trade-offs, Testing with 100% coverage using typedocs. Has lead me to a place where I am looking forward to continuing my growth with a company that aligns with me. It's our duty as engineers / humans to work on our own self development. Life is too precious and rad to be lazy. Make it happen. No matter what project I'm working on, I never give up. Some projects have a short deadline (get it done 💯) and other projects can take months to years. Whatever the case may be, I don't stop, won't stop.
   
 # Collaborations and Programming Sessions
 
