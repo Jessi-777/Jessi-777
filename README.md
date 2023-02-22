@@ -29,7 +29,7 @@
 
 - I've worked with teams and also taken projects programming & developing alone. This being said, I can work alone and be here for my team when they         need me, vise versa.
 
-- My background is unique, so my thought process can be different at times and that's ok. I embrace being `unique` I like writing things down whenever I     feel the need to. 
+- My background is unique, so my thought process can be different at times and that's ok. I embrace being `unique`  and I like writing things down whenever I     feel the need to. 
 
 - I trust and honor my team / collaborators. No matter how stuck an engineer is, never put them down. Teach, guide or mentor, always lift up the             people. Being realist is important. But, being mean about it is never necessary.
 
