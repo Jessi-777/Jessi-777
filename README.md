@@ -46,7 +46,7 @@
 
 - If you want to chop it up, I'm all ears. 
 
-- If I have questions, I will let you know rooted with good intentions & good vibes. 💯
+- If I have questions, I will let you know rooted with good intentions, focus, determination and a splash of good vibes for the love of it. 💯
 
 - As a natural artist, I'm in my mind working, detailing, building code, solving problems, hearing a beat, designing a graphic in my head etc. ect. So,       please never assume you know what I'm thinking with a negative mindset. Assuming can be a room filled with of misconceptions and perspectives. If you do   know how to read people, you will find that, I'm chill, I got nothin but love to give, you can ask me anything.
 
