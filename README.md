@@ -25,7 +25,7 @@
 
 - Energy is everything, it's important to protect your energy, keep calm, stay positive, know that you will solve your problem. 
 
-- Teams that have the ability to trust & feel confident about helping each other, is a successful Healthy and Balanced team. Yes, it's rare. Treasure it. 
+- Teams that have the ability to trust & feel confident about helping each other, is a successful Healthy and Balanced team. Yes, it's rare & I treasure it. 
 
 - I've worked with teams and also taken projects programming & developing alone. This being said, I can work alone and be here for my team when they         need me, vise versa.
 
