@@ -33,7 +33,7 @@
 
 - I trust and honor my team / collaborators. No matter how stuck an engineer is, never put them down. Teach, guide or mentor with repect for each other. 
 
-- We Software Engineers know how `Serious` it is to work with `Sensative Data`. 💯  
+- Trust me we Software Engineers know how `Serious` it is to work with `Sensative Data`. 💯  
 
   
 # Communication
