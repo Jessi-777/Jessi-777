@@ -3,11 +3,14 @@
 
 - Hi I'm Jessi, I'm software Engineer who believes in building and using technology rooted by love to help each other, progress our lives for the good of     humanity.
 
-- I see staying humble as a workout within you that builds courage, sacred knowledge, strength and compassion while using your ambitions to fuel you to get   things done. 
+- To me staying humble is a workout within you that builds courage, sacred knowledge, strength and compassion while using your ambitions to fuel you to get   things done. 
 
-- My goal in life has always been about loving what I do. This way I am passionate about what I do and happy to deliver doing it. 
+- My goal in life has always been about loving what I do. This way, I am passionate about what I do and happy to deliver doing it. 
 
-- Learning is an infinite journey. I'm a student of the universe who loves to study, putting in my time with a healthy balance while staying focused. 
+- Learning is an infinite journey. I'm a student of the universe who loves to study, putting in my time with a healthy balance while staying focused.
+
+- I take self accountability serious with a healthy and balanced approach. 
+ 
 
 # Projects
 
