@@ -1,4 +1,4 @@
-# Jessi Software Engineer Facts   
+# Jessi Software Engineer About Me Facts   
 
 
 - Hi I'm Jessi, I'm Software Engineer who believes in building and using technology rooted by love to help each other, progress our lives for the good of     humanity.
