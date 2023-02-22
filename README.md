@@ -7,7 +7,7 @@
 
 - My goal in life has always been about loving what I do. This way, I am passionate about what I do and happy to deliver doing it. 
 
-- Learning is an infinite journey. I'm a student of the universe who loves to study, putting in my time, while taking self accountability serious with a     healthy balance while staying focused.
+- Learning is an infinite journey. I'm a student of the universe who loves to study, putting in my time, while taking self accountability serious with a     healthy balance staying focused.
 
 
 # Projects
