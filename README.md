@@ -57,7 +57,7 @@
  
 - I take verbal abuse very seriuosly. I will not tolerate verbal and mental abuse from anyone who loses their patience, because they had a bad day, or       chant on a daily how horrible their life is. 
 
-- We must be accountable for our own happiness and have respectful boundaries with each other. Let's grow together and water ourselves as we grow. 🌱
+- We must be accountable for our own happiness and have respectful boundaries with each other. Everything isn't always perfect, yet the beauty is, what       you're learning from your experiences, which creates self growth. Let's grow together and water ourselves as we grow. 🌱
 
 - One experience is all it takes to grow through a senerio like that, to learn how important it is to be in a positive environment `Know Your Worth`.
 
