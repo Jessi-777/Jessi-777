@@ -33,12 +33,12 @@
 
 - I trust and honor my team / collaborators. No matter how stuck an engineer is, never put them down. Teach, guide or mentor, always lift up the             people. Being realist is important. But, being mean about it is never necessary.
 
-- We Software Engineers know how `Serious` we need to becareful with `sensative data`. 💯  
+- We Software Engineers know how `Serious` it is to work with `sensative data`. 💯  
 
   
 # Communication
 
-- Communication is the root of a great professional / friend relationship.
+- Communication is the root of a great professional relationship.
 
 - I will communicate with you in a humble and respectable manner. ( If we're buddies you already know )
 
@@ -46,9 +46,9 @@
 
 - If you want to chop it up, I'm all ears. 
 
-- If I have questions, I will let you know with good vibes. 💯
+- If I have questions, I will let you know rooted with good intentions & good vibes. 💯
 
-- As a natural artist, I'm in my mind working, detailing, building code, solving problems, hearing a beat, designing a graphic in my head etc. ect. So, please never     assume you know what I'm thinking with a negative mindset. Assuming can be a room filled with of misconceptions and perspectives. If you do know how to     read people, you will find that, I'm chill, I got nothin but love to give, you can ask me anything.
+- As a natural artist, I'm in my mind working, detailing, building code, solving problems, hearing a beat, designing a graphic in my head etc. ect. So,       please never assume you know what I'm thinking with a negative mindset. Assuming can be a room filled with of misconceptions and perspectives. If you do   know how to read people, you will find that, I'm chill, I got nothin but love to give, you can ask me anything.
 
 
 # Mental and verbal abuse is real in our society ( Let's be real ) 
@@ -57,7 +57,7 @@
  
 - I take verbal abuse very seriuosly. I will not tolerate verbal and mental abuse from anyone who loses their patience, because they had a bad day, or       chant on a daily how horrible their life is. 
 
-- We must be accountable for our own happiness and have respectful boundaries with each other.
+- We must be accountable for our own happiness and have respectful boundaries with each other. Let's grow together and water ourselves as we grow. 🌱
 
 - One experience is all it takes to grow through a senerio like that, to learn how important it is to be in a positive environment `Know Your Worth`.
 
