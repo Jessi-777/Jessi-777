@@ -9,6 +9,8 @@
 
 - Learning is an infinite journey. I'm a student of the universe who loves to study, putting in my time, while taking self accountability serious with a     healthy balance staying focused.
 
+- Being a valuable asset to a company is just as important as valuing opportunities that contribute to my growth.  Win, Win.  
+
 
 # Projects
 
