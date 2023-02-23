@@ -1,4 +1,4 @@
-# Jessi's Software Engineer README.md (How I work with people)   
+# Jessi's Software Engineer Intro, Collaboration, Programming Sessions & Communication.  README.md    
 
 - Hi I'm Jessi, I'm Software Engineer who believes in building and using technology rooted by love to help each other, progress our lives for the good ofhumanity. To me staying humble is a workout within you that builds courage, knowledge, wisdom, strength and compassion while using your ambitions to fuel you to get things done. My goal in life has always been about loving what I do. This way, I am passionate about what I do and happy to deliver doing it. Learning is an infinite journey. I'm a student of the universe who loves to study, putting in my time, while taking self / team accountability serious with a healthy balance staying focused. Being a valuable asset to a company is just as important as valuing opportunities that contribute to my growth. Win, Win!
 
