@@ -1,6 +1,6 @@
 # Jessi's Software Engineer (How to work with each other) README.md    
 
-- Hi I'm Jessi, I'm Software Engineer who believes in building and using technology rooted by love to help each other, progress our lives for the good of humanity. My goal in life has always been about loving what I do. This way, I am passionate about what I do and happy to deliver doing it. Learning is an infinite journey. I'm a student of the universe who loves to study, putting in my time, while taking self / team accountability serious with a healthy balance staying focused. Being a valuable asset to a company is just as important as valuing opportunities that contribute to my growth. Win, Win!
+- Hi I'm Jessi, I build and use technology to help contribute and add value to our lives for the good of humanity. Learning is an infinite journey. I'm a student of the universe who loves to study, putting in my time, solving problems and developing. I take self / team accountability serious with a positive mind set, healthy balance while staying focused. Being a valuable asset to a company is just as important as valuing opportunities that contribute to my growth. Win, Win!
 
 # Projects
 
