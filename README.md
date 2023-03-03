@@ -1,4 +1,4 @@
-# Jessi's Software Engineer (How to work with each other) README.md    
+# Jessi's Software Engineer (Working together towards our goals) README.md    
 
 - Hi, I'm Jessi, I build and use technology to help contribute and add value to our lives for the good of humanity. Learning is an infinite journey. I'm a student of the universe who loves to study, put in my time, solve problems, and develop. I take self/team accountability seriously with a positive mindset, and a healthy balance while staying focused. Being a valuable asset to a company is just as important as valuing opportunities that contribute to my growth. Win, Win!
 
